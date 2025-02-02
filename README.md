@@ -6,11 +6,12 @@ nonbinary, he/they, asia, sophomore high
 
 hi! I'm glad that you clicked here!! everyone is welcome to int with me eheh..
 
-pls dont send death threats..! pedos arent real, i hope youre not one...
+feel free to hide or cud with me, althogh my friends will be for available on that. feel free to sit near me nonetheless.
 
 NEVER copy my ponies, it took me whole lot of time to make them just to be copied by someone... erm
 
 fandoms/games: hyv, gow, tf2, val, touhou, crk, pjsk, omori, ddlc, marvel, and almost every anime in existence
+
 
 
 
