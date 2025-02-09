@@ -12,7 +12,7 @@ NEVER copy my ponies, it took me whole lot of time to make them just to be copie
 
 fandoms/games: hyv, gow, tf2, val, touhou, crk, pjsk, omori, ddlc, marvel, and almost every anime in existence
 
-
+also, PLEASE dont make me feel left out when i sit beside you :(( like moving to other places and not being included in the conversation. it makes me feel distant and might not talk to you anymore.
 
 
 https://github.com/user-attachments/assets/d68582ae-e39f-429d-9db5-d4d5f2e73fed
