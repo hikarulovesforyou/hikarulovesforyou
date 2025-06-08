@@ -1,5 +1,5 @@
 ## wsp gng, read byi
-nonbinary, he/they, asia, sophomore high
+nonbinary, they/them, asia, sophomore high
 
 
 
